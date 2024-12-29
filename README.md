@@ -1,5 +1,5 @@
-# 💫 About Me:
-Work with me & you will feel the difference!
+# 💫 Work with me & you will feel the difference!
+
 
 
 ## 🌐 Socials:
